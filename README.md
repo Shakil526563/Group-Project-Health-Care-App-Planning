@@ -39,7 +39,17 @@ Hopeful Outlook:
 
 Expresses optimism in achieving project goals through careful execution, customer focus, and the ability to navigate various scenarios.
 
+Supervisor name:
+Nusrat Jahan
+
+Adjunct Faculty, DIU
+
+Managing Director
+
+Interactive Artifact Ltd
+
 Group Member:
+
 •	Md. Al-Amin (202-15-3799)
 
 •	Md. Shakil Rana (202-15-3816)
