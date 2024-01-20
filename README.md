@@ -40,6 +40,7 @@ Hopeful Outlook:
 Expresses optimism in achieving project goals through careful execution, customer focus, and the ability to navigate various scenarios.
 
 Supervisor name:
+
 Nusrat Jahan
 
 Adjunct Faculty, DIU
