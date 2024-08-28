@@ -53,7 +53,7 @@ Group Member:
 
 •	Md. Al-Amin (202-15-3799)
 
-•	Md. Shakil Rana (202-15-3816)
+•	Shakil Rana (202-15-3816)
 
 •	Tasnim Jahan Tonni (202-15-3789)
 
