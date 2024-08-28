@@ -20,7 +20,7 @@ Supervisor name:
 Nusrat Jahan
 Adjunct Faculty, DIU
 Managing Director
-nteractive Artifact Ltd
+Interactive Artifact Ltd
 
 Group Member:
 •	Md. Al-Amin (202-15-3799)
